@@ -1,2 +1,0 @@
-# Peeirawat-Juntabut
-สอบปลายภาค 
